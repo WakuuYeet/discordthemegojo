@@ -1,0 +1,2 @@
+# discordthemegojo
+me dumb
